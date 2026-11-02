@@ -1,4 +1,4 @@
-# 👋 Welcome to NoahTech Inc
+# 👋 Welcome to NoahTech Team
 
 Fight.
 
